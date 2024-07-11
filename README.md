@@ -18,5 +18,5 @@
 
 </div>
 <br>
-"Apixonado pela codificação e pela resolução de problemas no mundo digital. Transformando ideias em código e desafios em soluções inovadoras. Em busca constante de novas tecnologias e oportunidades para criar um impacto positivo no mundo através do poder do software. Construindo o futuro, linha de código por linha de código! 💻✨ #CódigoÉVida"
+"Apaixonado pela codificação e pela resolução de problemas no mundo digital. Transformando ideias em código e desafios em soluções inovadoras. Em busca constante de novas tecnologias e oportunidades para criar um impacto positivo no mundo através do poder do software. Construindo o futuro, linha de código por linha de código! 💻✨ #CódigoÉVida"
 
